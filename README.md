@@ -62,7 +62,7 @@ The closest airports are [SFO](https://www.flysfo.com/) - San Francisco Internat
 This is up to you, if you plan to explore San Francisco/Bay Area beyond the All In event, you may want to rent a car. 
 The hotel is approximately a 15 minute walk and 7 minute drive to the meeting venue.  We are planning most events/dinners on the North side of San Francisco, and Ubers/Lyfts are readily available. If you plan to take taxis, you should download the [Flywheel](www.flywheel.com) app to your phone.
 #### What is the distance from Argonaut Hotel to Gallery 308 at Fort Mason?
-The hotel is approximately a 15 minute walk and 7 minute drive to Gallery 308. :arrow_right: [Map Link]()
+The hotel is approximately a 15 minute walk and 7 minute drive to Gallery 308. :arrow_right: [Map Link](https://goo.gl/maps/BUtW5PTA8bE95Ccd7)
 #### What is the weather like in San Francisco in October?
 Fall offers some of the city's warmest temperatures year-round. The average high is 69° F/21° C, the average low is 54° F/12° C, Average Monthly Rainfall: 1.1 inches. 
 #### Will there be COVID-19 protocols in place for ALL IN 2022?
