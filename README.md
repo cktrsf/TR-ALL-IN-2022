@@ -30,7 +30,7 @@ The 20% room discount is valid for 10/9 - 10/13, 2022
 Attendees may also book rooms directly using the promotional code LBPR at www.argonauthotel.com 
 
 *****
-#### 🙏 [PLEASE COMPLETE THIS ALL IN ATTENDEE INFORMATION SHEET]() ONCE YOU HAVE MADE YOUR TRAVEL ARRANGEMENTS
+#### 🙏 [PLEASE COMPLETE THIS ALL IN ATTENDEE INFORMATION SHEET](https://forms.gle/SL5rThN55MZjfDQN9) ONCE YOU HAVE MADE YOUR TRAVEL ARRANGEMENTS
 Thank you!
 *****
 
@@ -50,7 +50,7 @@ Thank you!
 
 #### ❓FAQs
 #### Will ALL IN 2022 be livestreamed?
-Yes, we will be livestreaming. We ask that you please indicate if you will be attending in-person or virtually for Day 1 and Day 2 on the [All In Attendee Information Sheet]().
+Yes, we will be livestreaming. We ask that you please indicate if you will be attending in-person or virtually for Day 1 and Day 2 on the [All In Attendee Information Sheet](https://forms.gle/SL5rThN55MZjfDQN9).
 #### What are the closest airports to San Francisco? 
 The closest airports are [SFO](https://www.flysfo.com/) - San Francisco International Airport, [15.5 miles to hotel](https://goo.gl/maps/PFMarsfiViMfachp9) and [OAK](https://www.oaklandairport.com/) - Oakland International Airport, [20.6 miles to the hotel](https://goo.gl/maps/N8uNgzd9zuM3aCoW8).
 #### What is the distance from Hotel Argonaut to Gallery 308 in Fort Mason?
@@ -58,7 +58,7 @@ The hotel is approximately a 15 minute walk, and 7 minute drive to Gallery 308. 
 #### Will there be Covid-19 Protocols in place for ALL IN 2022?
 Yes. We will adhere to [The City and County of San Francisco COVID-19 health orders and directives](https://sf.gov/resource/2022/covid-19-health-orders-and-directives). Please note, these rules and guidelines may be adjusted to ensure public safety.
 
-#### :dart: Please contact Carrie Keenan with any additional questions.
+#### :dart: Please contact [Carrie Keenan](ckeenan@turnriver.com) if you have additional questions.
 *****
 
 #### :tada: We look forward to welcoming everyone to ALL IN 2022 this October!
