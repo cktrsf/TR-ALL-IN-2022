@@ -12,7 +12,7 @@ San Francisco, CA
 *****
 
 #### :round_pushpin: ALL IN VENUE
-#### [Gallery 308 at Fort Mason Center](https://fortmason.org/venue/gallery-308/) :arrow_right: [Map Link](https://goo.gl/maps/o85GVHUr6sT9Bei46)
+#### [Gallery 308](https://fortmason.org/venue/gallery-308/) at Fort Mason Center for Arts & Culture :arrow_right: [Map Link](https://goo.gl/maps/o85GVHUr6sT9Bei46)
 <img width="300" alt="Screen Shot 2022-08-03 at 1 01 08 PM" src="https://user-images.githubusercontent.com/95945149/182726400-a39e0278-47cd-4465-8af1-eb68825af13b.png">
 Originally host to the maritime trade and repair shops at Fort Mason, Gallery 308 boasts panoramic views of San Francisco Bay and the Golden Gate Bridge. 
 
