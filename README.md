@@ -18,7 +18,7 @@ Originally host to the maritime trade and repair shops at Fort Mason, Gallery 30
 
 *****
 
-#### 	:bellhop_bell: ACCOMMODATIONS
+#### 	:bellhop_bell: HOTEL 
 #### [The Argonaut Hotel](www.argonauthotel.com/?utm_source=gmb-hotel&utm_medium=organic&utm_campaign=gmb0) in Fisherman's Wharf :arrow_right: [Map Link](https://g.page/ArgonautHotelSF?share)
 <img width="300" alt="Screen Shot 2022-08-03 at 2 26 09 PM" src="https://user-images.githubusercontent.com/95945149/182726812-bcd512be-1158-4284-bf99-893e3de5fb86.png">
 Across the street from Aquatic Park, this refined hotel in a restored warehouse is a 12-minute walk from Pier 39 and 0.5 miles from Alcatraz Island.
