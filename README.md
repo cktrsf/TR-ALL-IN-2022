@@ -50,16 +50,17 @@ Thank you!
 
 #### ❓FAQs
 #### Will ALL IN 2022 be livestreamed?
-Yes, we will be livestreaming. We ask that you please indicate if you will be attending in-person or virtually for Day 1 and Day 2 on the [All In Attendee Information Sheet]()
+Yes, we will be livestreaming. We ask that you please indicate if you will be attending in-person or virtually for Day 1 and Day 2 on the [All In Attendee Information Sheet]().
 #### What are the closest airports to San Francisco? 
-The clostest airports are SFO, San Francisco International Airport xx miles to hotel and OAK, Oakland International Airport xxx miles to the hotel.
+The closest airports are [SFO](https://www.flysfo.com/) - San Francisco International Airport, [15.5 miles to hotel](https://goo.gl/maps/PFMarsfiViMfachp9) and [OAK](https://www.oaklandairport.com/) - Oakland International Airport, [20.6 miles to the hotel](https://goo.gl/maps/N8uNgzd9zuM3aCoW8).
 #### What is the distance from Hotel Argonaut to Gallery 308 in Fort Mason?
 The hotel is approximately a 15 minute walk, and 7 minute drive to Gallery 308. [Map Link]()
-#### Will there be Covid-19 Porotcols in place for ALL IN 2022?
+#### Will there be Covid-19 Protocols in place for ALL IN 2022?
 Yes. We will adhere to [The City and County of San Francisco COVID-19 health orders and directives](https://sf.gov/resource/2022/covid-19-health-orders-and-directives). Please note, these rules and guidelines may be adjusted to ensure public safety.
 
-Please contact Carrie Keenan with any additional questions.
+#### :dart: Please contact Carrie Keenan with any additional questions.
+*****
 
-We look forward to welcoming everyone to ALL IN 2022 this October!
+#### :tada: We look forward to welcoming everyone to ALL IN 2022 this October!
 
 
