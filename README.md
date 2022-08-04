@@ -13,6 +13,8 @@ San Francisco, CA
 
 #### :round_pushpin: ALL IN VENUE
 #### [Gallery 308](https://fortmason.org/venue/gallery-308/) at Fort Mason Center for Arts & Culture :arrow_right: [Map Link](https://goo.gl/maps/o85GVHUr6sT9Bei46)
+Landmark Building A, 2 Marina Blvd, San Francisco, CA 94123 T. 415-345-7500
+
 <img width="300" alt="Screen Shot 2022-08-03 at 1 01 08 PM" src="https://user-images.githubusercontent.com/95945149/182726400-a39e0278-47cd-4465-8af1-eb68825af13b.png">
 Originally host to the maritime trade and repair shops at Fort Mason, Gallery 308 boasts panoramic views of San Francisco Bay and the Golden Gate Bridge. 
 
@@ -20,6 +22,10 @@ Originally host to the maritime trade and repair shops at Fort Mason, Gallery 30
 
 #### 	:bellhop_bell: HOTEL 
 #### [Argonaut Hotel](https://www.argonauthotel.com/) in Fisherman's Wharf :arrow_right: [Map Link](https://g.page/ArgonautHotelSF?share)
+495 Jefferson Street
+San Francisco, CA 94109
+T. 415-563-0800
+
 <img width="300" alt="Screen Shot 2022-08-03 at 2 26 09 PM" src="https://user-images.githubusercontent.com/95945149/182726812-bcd512be-1158-4284-bf99-893e3de5fb86.png">
 Across the street from Aquatic Park, this refined hotel in a restored warehouse is a 12-minute walk from Pier 39 and 0.5 miles from Alcatraz Island.
 Nautical-style rooms with exposed brick walls feature flat-screen TVs, coffeemakers and yoga mats. Suites add separate living rooms and whirlpool tubs, as well as views of the Golden Gate Bridge and San Francisco Bay.
