@@ -60,6 +60,6 @@ Yes. We will adhere to [The City and County of San Francisco COVID-19 health ord
 #### :dart: Please contact [Carrie Keenan](ckeenan@turnriver.com) if you have additional questions.
 *****
 
-#### :tada: We look forward to welcoming everyone to ALL IN 2022 this October!
+### :tada: We look forward to welcoming everyone to ALL IN 2022 this October!
 
 
