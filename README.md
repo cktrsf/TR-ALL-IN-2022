@@ -62,7 +62,7 @@ Fall offers some of the city's warmest temperatures year-round. The average high
 #### Will there be COVID-19 protocols in place for ALL IN 2022?
 Yes. We will adhere to [The City and County of San Francisco COVID-19 health orders and directives](https://sf.gov/resource/2022/covid-19-health-orders-and-directives). Please note, these rules and guidelines may be adjusted to ensure public safety.
 
-#### :dart: Please contact [Carrie Keenan](ckeenan@turnriver.com) if you have additional questions.
+#### :envelope_with_arrow: Please contact [Carrie Keenan](ckeenan@turnriver.com) if you have additional questions.
 *****
 
 ### :tada: We look forward to welcoming everyone to ALL IN 2022 this October!
