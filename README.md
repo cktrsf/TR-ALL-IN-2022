@@ -54,6 +54,8 @@ Yes, we will be livestreaming. We ask that you please indicate if you will be at
 The closest airports are [SFO](https://www.flysfo.com/) - San Francisco International Airport, [15.5 miles to hotel](https://goo.gl/maps/PFMarsfiViMfachp9) and [OAK](https://www.oaklandairport.com/) - Oakland International Airport, [20.6 miles to the hotel](https://goo.gl/maps/N8uNgzd9zuM3aCoW8).
 #### What is the distance from Hotel Argonaut to Gallery 308 in Fort Mason?
 The hotel is approximately a 15 minute walk, and 7 minute drive to Gallery 308. :arrow_right: [Map Link]()
+#### What is the weather like in San Francisco in October?
+Fall offers some of the city's warmest temperatures year-round. The average high is 69° F/21° C, the average low is 54° F/12° C, Average Monthly Rainfall: 1.1 inches. 
 #### Will there be COVID-19 protocols in place for ALL IN 2022?
 Yes. We will adhere to [The City and County of San Francisco COVID-19 health orders and directives](https://sf.gov/resource/2022/covid-19-health-orders-and-directives). Please note, these rules and guidelines may be adjusted to ensure public safety.
 
