@@ -31,7 +31,9 @@ Across the street from Aquatic Park, this refined hotel in a restored warehouse 
 Nautical-style rooms with exposed brick walls feature flat-screen TVs, coffeemakers and yoga mats. Suites add separate living rooms and whirlpool tubs, as well as views of the Golden Gate Bridge and San Francisco Bay.
 
 #### :rotating_light: PLEASE BOOK ONLINE DIRECTLY WITH HOTEL ASAP AND RECEIVE 20% OFF :arrow_right: [HERE](https://be.synxis.com/?adult=1&arrive=2022-08-03&chain=11910&child=0&currency=USD&depart=2022-08-04&hotel=65957&level=hotel&locale=en-US&promo=LBPR&rooms=1)
-The 20% room discount is valid for 10/9 - 10/13, 2022
+#### The 20% room discount is valid for 10/9 - 10/13, 2022 
+
+*Please note the All In Opening Reception (first event) takes place on 10/10, 6- 9pm PT and the final event, the T/R + Portco Dinner, takes place 6- 9pm PT on 10/12.
 
 Attendees may also book rooms directly using the promotional code LBPR at www.argonauthotel.com 
 
