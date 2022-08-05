@@ -60,7 +60,7 @@ Yes, we will be livestreaming. We ask that you please indicate if you will be at
 The closest airports are [SFO](https://www.flysfo.com/) - San Francisco International Airport, [15.5 miles to hotel](https://goo.gl/maps/PFMarsfiViMfachp9) and [OAK](https://www.oaklandairport.com/) - Oakland International Airport, [20.6 miles to the hotel](https://goo.gl/maps/N8uNgzd9zuM3aCoW8).
 #### Should I rent a car?
 This is up to you, if you plan to explore San Francisco/Bay Area beyond the All In event, you may want to rent a car. 
-The hotel is approximately a 15 minute walk and 7 minute drive to the meeting venue.  We are planning most events/dinners on the North side of San Francisco, and Ubers/Lyfts are readily available. If you plan to take taxis, you should download the [Flywheel](www.flywheel.com) app to your phone.
+The hotel is approximately a 15 minute walk and 7 minute drive to the meeting venue.  We are planning most events/dinners on the North side of San Francisco, and Ubers/Lyfts are readily available. If you plan to take taxis, you should download the Flywheel(www.flywheel.com) app to your phone.
 #### What is the distance from Argonaut Hotel to Gallery 308 at Fort Mason?
 The hotel is approximately a 15 minute walk and 7 minute drive to Gallery 308. :arrow_right: [Map Link](https://goo.gl/maps/BUtW5PTA8bE95Ccd7)
 #### What is the weather like in San Francisco in October?
@@ -68,7 +68,7 @@ Fall offers some of the city's warmest temperatures year-round. The average high
 #### Will there be COVID-19 protocols in place for ALL IN 2022?
 Yes. We will adhere to [The City and County of San Francisco COVID-19 health orders and directives](https://sf.gov/resource/2022/covid-19-health-orders-and-directives). Please note, these rules and guidelines may be adjusted to ensure public safety.
 
-#### :envelope_with_arrow: Please contact [Carrie Keenan](ckeenan@turnriver.com) if you have additional questions.
+#### :envelope_with_arrow: Please contact Carrie Keenan via email (ckeenan@turnriver.com) if you have additional questions.
 *****
 
 ### :tada: We look forward to welcoming everyone to ALL IN 2022 this October!
