@@ -44,15 +44,15 @@ Thank you!
 
 #### :watch: ALL IN 2022 TENTATIVE SCHEDULE
 #### MON 10/10
-6 - 9pm PT - All In Welcome Reception - All Attendees (this event will be catered) Location TBC
+6 - 9pm PT - All In Welcome Reception - All Attendees, [Emporium Arcade Bar](https://www.emporiumarcadebar.com/locations/san-francisco/)
 #### TUES 10/11
 9am - 5pm PT - All In Day 1 - Gallery 308, Fort Mason
 
-6pm - 9pm PT - T/R + All In Attendee Dinner, Location TBC
+6pm - 9pm PT - T/R + All In Attendee Dinner, [China Live](https://chinalivesf.com/)
 #### WEDS 10/12
 9am - 5pm PT - All In Day 2 - Gallery 308, Fort Mason
 
-6pm - 9pm PT - T/R + All In Attendee Dinner, Location TBC
+5pm - 9pm PT - T/R + All In Attendee Recption/Dinner, [RadHaus](http://radhaussf.com/)
 *****
 
 #### ❓FAQs
