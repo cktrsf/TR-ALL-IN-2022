@@ -28,7 +28,7 @@ T. 415-563-0800
 
 <img width="300" alt="Screen Shot 2022-08-03 at 2 26 09 PM" src="https://user-images.githubusercontent.com/95945149/182726812-bcd512be-1158-4284-bf99-893e3de5fb86.png">
 Across the street from Aquatic Park, this refined hotel in a restored warehouse is a 12-minute walk from Pier 39 and 0.5 miles from Alcatraz Island.
-Nautical-style rooms with exposed brick walls feature flat-screen TVs, coffeemakers and yoga mats. Suites add separate living rooms and whirlpool tubs, as well as views of the Golden Gate Bridge and San Francisco Bay.
+Nautical-style rooms with exposed brick walls feature flat-screen TVs, coffee makers and yoga mats. Suites add separate living rooms and whirlpool tubs, as well as views of the Golden Gate Bridge and San Francisco Bay.
 
 #### :rotating_light: PLEASE BOOK ONLINE DIRECTLY WITH HOTEL ASAP AND RECEIVE 20% OFF :arrow_right: [HERE](https://be.synxis.com/?adult=1&arrive=2022-08-03&chain=11910&child=0&currency=USD&depart=2022-08-04&hotel=65957&level=hotel&locale=en-US&promo=LBPR&rooms=1)
 #### The 20% room discount is valid for 10/9 - 10/13, 2022 
